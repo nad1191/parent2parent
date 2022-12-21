@@ -1,2 +1,0 @@
-# parent2parent
-Sometimes parents struggle to find or ask for help about their child because it’s a reflection on them or tutoring is only found in a certain grade level, or when it is found the cost is ridiculous, but we have to acknowledge every child is smart and needs the resources to learn, and I feel like this would be a safe space for parents to seek the help that is needed for their child to not only help them succeed in their own path but do it for free while also finding support from other parents.
